@@ -55,3 +55,8 @@ volcan les efface, une mer nouvelle, un vent de sable
 - Terre des hommes (1938) de Antoine de Saint-Exupéry
 
 ---
+
+- “To survive, you must tell stories.” 
+- *Umberto Eco, The Island of the Day Before*
+
+---
