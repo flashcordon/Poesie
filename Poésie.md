@@ -1,0 +1,5 @@
+The Night has a thousand eyes,
+And the Day but one;
+Yet the light of the bright world dies
+With the dying sun.
+Francis William Bourdillon (1873)
