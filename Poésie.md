@@ -60,3 +60,10 @@ volcan les efface, une mer nouvelle, un vent de sable
 - *Umberto Eco, The Island of the Day Before*
 
 ---
+
+- À quelle page ouvrirais-tu l’Atlas du Temps ; 
+- ignorerais-tu donc que, de sa tour d’abîmes, 
+- on ne voit que la nuit future : 
+- y surplombant l’ombre et l’oubli, 
+- l’esprit jette un éclair ultime… ?
+- *Jean-Yves Léopold (Twitter, 2018)*
