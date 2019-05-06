@@ -67,3 +67,7 @@ volcan les efface, une mer nouvelle, un vent de sable
 - y surplombant l’ombre et l’oubli, 
 - l’esprit jette un éclair ultime… ?
 - *Jean-Yves Léopold (Twitter, 2018)*
+
+---
+
+- “In this great chain of causes and effects, no single fact can be considered in isolation.” - Alexander von Humboldt
