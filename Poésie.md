@@ -83,3 +83,7 @@ volcan les efface, une mer nouvelle, un vent de sable
 - Out of the cradle onto the dry land . . . here it is standing . . . atoms with consciousness . . . matter with curiosity.
 - Stands at the sea . . . wonders at wondering . . . I . . . a universe of atoms . . . an atom in the universe. 
 - Richard Feynman
+
+--- 
+
+- "The soft bonds of love are indifferent to life and death. They hold through time so that yesterday’s love is part of today’s and the confidence in tomorrow’s love is also part of today’s. And when one dies, the memory lives in the other, and is warm and breathing. And when both die — I almost believe, rationalist though I am — that somewhere it remains, indestructible and eternal, enriching all of the universe by the mere fact that once it existed." - Isaac Asimov
