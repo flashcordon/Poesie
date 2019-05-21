@@ -87,3 +87,24 @@ volcan les efface, une mer nouvelle, un vent de sable
 --- 
 
 - "The soft bonds of love are indifferent to life and death. They hold through time so that yesterday’s love is part of today’s and the confidence in tomorrow’s love is also part of today’s. And when one dies, the memory lives in the other, and is warm and breathing. And when both die — I almost believe, rationalist though I am — that somewhere it remains, indestructible and eternal, enriching all of the universe by the mere fact that once it existed." - Isaac Asimov
+
+---
+
+- J’ai rencontré un voyageur venu d’une terre antique
+- Qui m'a dit : « Deux immenses jambes de pierre dépourvues de buste
+- Se dressent dans le désert. Près d’elles, sur le sable,
+- À moitié enfoui, gît un visage brisé dont le sourcil froncé,
+
+- La lèvre plissée et le sourire de froide autorité
+- Disent que son sculpteur sut lire les passions
+- Qui, gravées sur ces objets sans vie, survivent encore
+- À la main qui les imita et au cœur qui les nourrit.
+
+- Et sur le piédestal il y a ces mots :
+- "Mon nom est Ozymandias, Roi des Rois.
+- Voyez mon œuvre, ô puissants, et désespérez !"
+
+- À côté, rien ne demeure. Autour des ruines
+- De cette colossale épave, infinis et nus,
+- Les sables monotones et solitaires s’étendent au loin.
+- Ozymandias, Percy Bysshe Shelley
