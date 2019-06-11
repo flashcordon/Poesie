@@ -108,3 +108,8 @@ volcan les efface, une mer nouvelle, un vent de sable
 - De cette colossale épave, infinis et nus,
 - Les sables monotones et solitaires s’étendent au loin.
 - Ozymandias, Percy Bysshe Shelley
+
+---
+
+- "Si nous sommes emprisonnés dans le temps comme dans l’espace, tâchons de nous accommoder de notre prison ; quoiqu’on en dise, elle est assez vaste pour nous. Pénétrons-nous de cette idée, que l’humanité est un corps dont nous sommes une molécule, et que le vœu de la nature est que nous vivions pour les autres, qui sont nous-mêmes. Profitons de l’héritage de nos aînés ; travaillons pour que ceux qui nous suivront soient plus heureux que nous, s’il est possible, et nous soient reconnaissants de l’existence que nous leur aurons préparée. Nous verrons alors que la vie est bonne, et, le moment venu, nous nous endormirons avec le calme et la satisfaction de l’ouvrier qui a fini sa tâche et bien employé sa journée. Les joies que la nature nous donne, qu’elle ne refuse même pas complètement aux plus déshérités d’entre nous, celle que procure la découverte de vérités nouvelles, les jouissances esthétiques de l’art, le spectacle des douleurs soulagées et les efforts pour les supprimer dans la mesure du possible, tout cela peut suffire au bonheur de la vie. Il est à craindre que tout le reste ne soit que folie et chimère."
+- Camille Saint Saens, Problèmes et Mystères
