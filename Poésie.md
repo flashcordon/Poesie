@@ -113,3 +113,11 @@ volcan les efface, une mer nouvelle, un vent de sable
 
 - "Si nous sommes emprisonnés dans le temps comme dans l’espace, tâchons de nous accommoder de notre prison ; quoiqu’on en dise, elle est assez vaste pour nous. Pénétrons-nous de cette idée, que l’humanité est un corps dont nous sommes une molécule, et que le vœu de la nature est que nous vivions pour les autres, qui sont nous-mêmes. Profitons de l’héritage de nos aînés ; travaillons pour que ceux qui nous suivront soient plus heureux que nous, s’il est possible, et nous soient reconnaissants de l’existence que nous leur aurons préparée. Nous verrons alors que la vie est bonne, et, le moment venu, nous nous endormirons avec le calme et la satisfaction de l’ouvrier qui a fini sa tâche et bien employé sa journée. Les joies que la nature nous donne, qu’elle ne refuse même pas complètement aux plus déshérités d’entre nous, celle que procure la découverte de vérités nouvelles, les jouissances esthétiques de l’art, le spectacle des douleurs soulagées et les efforts pour les supprimer dans la mesure du possible, tout cela peut suffire au bonheur de la vie. Il est à craindre que tout le reste ne soit que folie et chimère."
 - Camille Saint Saens, Problèmes et Mystères
+
+---
+
+- "What type of sen tence (I asked myself) will an absolute mind construct? I considered that even in the human languages there is no proposition that does not imply the entire universe; to say the tiger is to say the tigers that begot it, the deer and turtles devoured by it, the grass on which the deer fed, the earth that was mother to the grass, the heaven that gave birth to the earth."
+- "Whoever has seen the universe, has beheld the fiery designs of the universe, cannot think in terms of one man, of that man's trivial fortunes or misfortunes, though he be that very man. That man has been he and now matters no more to him. What is the life of that other to him, the nation of that other to him, if he, now, is no one."
+- Jorges Luis Borges, the God's script
+
+---
