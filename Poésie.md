@@ -121,3 +121,10 @@ volcan les efface, une mer nouvelle, un vent de sable
 - Jorges Luis Borges, the God's script
 
 ---
+
+- [...] L’univers tout entier concentré dans ce vin
+- Qui contentait les mers les animaux les plantes
+- Les cités les destins et les astres qui chantent
+- Les hommes à genoux sur la rive du ciel
+- Et le docile fer notre bon compagnon...
+- Guillaume Appollinaire, [Vendémiaire](https://www.poetica.fr/poeme-4158/guillaume-apollinaire-vendemiaire/?fbclid=IwAR2b8I138gJmS3504nFOGK4CORK3Rd6uRHcpQHo6C_IhoFFoFYcu0RZxf0c)
