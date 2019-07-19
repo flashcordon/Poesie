@@ -128,3 +128,22 @@ volcan les efface, une mer nouvelle, un vent de sable
 - Les hommes à genoux sur la rive du ciel
 - Et le docile fer notre bon compagnon...
 - Guillaume Appollinaire, [Vendémiaire](https://www.poetica.fr/poeme-4158/guillaume-apollinaire-vendemiaire/?fbclid=IwAR2b8I138gJmS3504nFOGK4CORK3Rd6uRHcpQHo6C_IhoFFoFYcu0RZxf0c)
+
+---
+
+- “Where I came from” is ionized hydrogen and interstellar dust
+- The sloughed-off remains of a giant star
+- Radioactive sparks in sunbeam suspension
+- “Where I came from” is a long-lost generation of suns
+- Those that lived and died and scattered their own remains
+- Nuclear detonations of compact matter, the death spiral plunges of neutron stars
+- “Where I came from” is the empty depths, the far-flung glints on the cosmic ocean
+- “Where I came from” is an eddy in an infrared-hot protoplanetary disk 
+- “Where I came from” is a collision of worlds so violent it tore magma from the Earth to coalesce into the Moon
+- “Where I came from” is the sky, the ground, the sea, the very air we breathe
+ -“Where I came from” is the infinite
+- “Where I came from” is the Universe
+- And one day, when I am good and ready, I will go back
+- Katie Mack, Go Back
+
+---
