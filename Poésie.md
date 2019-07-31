@@ -147,3 +147,18 @@ volcan les efface, une mer nouvelle, un vent de sable
 - Katie Mack, Go Back
 
 ---
+
+* HOW IT SEEMS TO ME, by Ursula K. Le Guin
+
+- In the vast abyss before time, self
+- is not, and soul commingles
+- with mist, and rock, and light. In time,
+- soul brings the misty self to be.
+- Then slow time hardens self to stone
+- while ever lightening the soul,
+- till soul can loose its hold of self
+- and both are free and can return
+- to vastness and dissolve in light,
+- the long light after time.
+
+---
