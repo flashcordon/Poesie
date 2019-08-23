@@ -167,3 +167,8 @@ volcan les efface, une mer nouvelle, un vent de sable
 - Lors Byron, Les Ténèbres (Darkness)
 
 ---
+
+- "We do not see the world as it is, we see the world as we are"
+- The Talmud
+
+---
