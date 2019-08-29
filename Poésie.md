@@ -172,3 +172,6 @@ volcan les efface, une mer nouvelle, un vent de sable
 - The Talmud
 
 ---
+
+ - Vous connaissez la scintillante beauté de l’or et de l’argent ; et l’éclat encore plus beau des pierres précieuses comme le rubis ou le diamant ; mais aucun de ceux-là ne rivalisent avec la brillance et la magnificence d’une flamme.
+- Michael Faraday (1791-1867), dans L’Histoire Chimique d’une Bougie
