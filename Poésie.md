@@ -1,3 +1,8 @@
+- Qu'est-ce que l'homme dans la nature? Un néant à l'égard de l'infini, un tout à l'égard du néant, un milieu entre rien et tout. Infiniment éloigné de comprendre les extrêmes, la fin des choses et leur principe sont pour lui invinciblement cachés dans un secret impénétrable, également incapable de voir le néant d'où il est tiré, et l'infini où il est englouti. Que fera-t-il donc, sinon d'apercevoir (quelque) apparence du milieu des choses, dans un désespoir éternel de connaître ni leur principe ni leur fin?"
+- Blaise PASCAL, Pensées
+
+---
+
 - The Night has a thousand eyes,
 - And the Day but one;
 - Yet the light of the bright world dies
