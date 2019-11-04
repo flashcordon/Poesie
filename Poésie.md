@@ -1,3 +1,8 @@
+- I thought of a labyrinth of labyrinths, of one sinuous spreading labyrinth that would encompass the past and the future and in some way involve the stars.
+- Jorge Luis Borges
+
+---
+
 - “The first day or so we all pointed to our countries. The third or fourth day we were pointing to our continents. By the fifth day, we were aware of only one Earth,” 
 - *Prince Sultan bin Salman Al-Saud, premier astronaute Saoudien (Mission STS-51G, 17 Juin 1985, dans la navette Discovery)*
 
