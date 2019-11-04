@@ -1,3 +1,8 @@
+- “The first day or so we all pointed to our countries. The third or fourth day we were pointing to our continents. By the fifth day, we were aware of only one Earth,” 
+- *Prince Sultan bin Salman Al-Saud, premier astronaute Saoudien (Mission STS-51G, 17 Juin 1985, dans la navette Discovery)*
+
+---
+
 - We shall not cease from exploration, and the end of all our exploring will be to arrive where we started and know the place for the first time.
 - T. S. Eliot
 
