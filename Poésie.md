@@ -1,3 +1,9 @@
+- We shall not cease from exploration, and the end of all our exploring will be to arrive where we started and know the place for the first time.
+- T. S. Eliot
+
+
+---
+
 - Le temps est la substance dont je suis fait.
 - Le temps est un fleuve qui m’emporte, mais je suis le fleuve ;
 - c’est un tigre qui me déchire, mais je suis le tigre ;
