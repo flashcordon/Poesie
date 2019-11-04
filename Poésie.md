@@ -1,3 +1,11 @@
+- Le temps est la substance dont je suis fait.
+- Le temps est un fleuve qui m’emporte, mais je suis le fleuve ;
+- c’est un tigre qui me déchire, mais je suis le tigre ;
+- c’est un feu qui me consume, mais je suis le feu.
+- *Jorge Luis Borges. Une Nouvelle réfutation du temps.*
+
+---
+
 - Qu'est-ce que l'homme dans la nature? "Un néant à l'égard de l'infini, un tout à l'égard du néant, un milieu entre rien et tout. Infiniment éloigné de comprendre les extrêmes, la fin des choses et leur principe sont pour lui invinciblement cachés dans un secret impénétrable, également incapable de voir le néant d'où il est tiré, et l'infini où il est englouti. Que fera-t-il donc, sinon d'apercevoir (quelque) apparence du milieu des choses, dans un désespoir éternel de connaître ni leur principe ni leur fin?"
 - Blaise PASCAL, Pensées
 
