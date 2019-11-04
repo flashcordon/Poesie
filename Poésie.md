@@ -180,3 +180,8 @@ volcan les efface, une mer nouvelle, un vent de sable
 
  - Vous connaissez la scintillante beauté de l’or et de l’argent ; et l’éclat encore plus beau des pierres précieuses comme le rubis ou le diamant ; mais aucun de ceux-là ne rivalisent avec la brillance et la magnificence d’une flamme.
 - Michael Faraday (1791-1867), dans L’Histoire Chimique d’une Bougie
+
+--- 
+
+- Le cerveau est l'obstacle à la pensée scientifique.  Il est un obstacle en ce sens qu'il est un coordonnateur de gestes et d'appétits. Il faut penser contre le cerveau. 
+- Bachelard - La formation de l'esprit scientifique
