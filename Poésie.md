@@ -1,3 +1,8 @@
+- In this food I see clearly the presence of the entire universe supporting my existence
+- Vietnamese Buddhist Monk, Thich Nhat Hanh
+
+---
+
 - I thought of a labyrinth of labyrinths, of one sinuous spreading labyrinth that would encompass the past and the future and in some way involve the stars.
 - Jorge Luis Borges
 
