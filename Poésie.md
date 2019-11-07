@@ -1,3 +1,7 @@
+- “La voie la plus courte pour l'avenir est toujours celle qui passe par l'approfondissement du passé.” - Aimé Césaire
+
+---
+
 - Écoute plus souvent
 - Les Choses que les Êtres
 - La Voix du Feu s’entend,
