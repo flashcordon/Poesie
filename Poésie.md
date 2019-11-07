@@ -75,7 +75,7 @@
 - Le Buisson en sanglots,
 - C’est le Souffle des Ancêtres.
 
-- *BIRAGO DIOP, Souffles*
+- *BIRAGO DIOP, Souffles (version audio magistrale [ici](http://neveu01.chez-alice.fr/birasouf.htm))*
 
 ---
 
