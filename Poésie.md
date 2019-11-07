@@ -1,3 +1,84 @@
+- Écoute plus souvent
+- Les Choses que les Êtres
+- La Voix du Feu s’entend,
+- Entends la Voix de l’Eau.
+- Écoute dans le Vent
+- Le Buisson en sanglots :
+- C’est le Souffle des ancêtres.
+
+- Ceux qui sont morts ne sont jamais partis :
+- Ils sont dans l’Ombre qui s’éclaire
+- Et dans l’ombre qui s’épaissit.
+- Les Morts ne sont pas sous la Terre :
+- Ils sont dans l’Arbre qui frémit,
+- Ils sont dans le Bois qui gémit,
+- Ils sont dans l’Eau qui coule,
+- Ils sont dans l’Eau qui dort,
+- Ils sont dans la Case, ils sont dans la Foule :
+- Les Morts ne sont pas morts.
+
+- Écoute plus souvent
+- Les Choses que les Êtres
+- La Voix du Feu s’entend,
+- Entends la Voix de l’Eau.
+- Écoute dans le Vent
+- Le Buisson en sanglots :
+- C’est le Souffle des Ancêtres morts,
+- Qui ne sont pas partis
+- Qui ne sont pas sous la Terre
+- Qui ne sont pas morts.
+
+- Ceux qui sont morts ne sont jamais partis :
+- Ils sont dans le Sein de la Femme,
+- Ils sont dans l’Enfant qui vagit
+- Et dans le Tison qui s’enflamme.
+- Les Morts ne sont pas sous la Terre :
+- Ils sont dans le Feu qui s’éteint,
+- Ils sont dans les Herbes qui pleurent,
+- Ils sont dans le Rocher qui geint,
+- Ils sont dans la Forêt, ils sont dans la Demeure,
+- Les Morts ne sont pas morts.
+
+- Écoute plus souvent
+- Les Choses que les Êtres
+- La Voix du Feu s’entend,
+- Entends la Voix de l’Eau.
+- Écoute dans le Vent
+- Le Buisson en sanglots,
+- C’est le Souffle des Ancêtres.
+- Il redit chaque jour le Pacte,
+- Le grand Pacte qui lie,
+- Qui lie à la Loi notre Sort,
+- Aux Actes des Souffles plus forts
+- Le Sort de nos Morts qui ne sont pas morts,
+- Le lourd Pacte qui nous lie à la Vie.
+- La lourde Loi qui nous lie aux Actes
+- Des Souffles qui se meurent
+- Dans le lit et sur les rives du Fleuve,
+- Des Souffles qui se meuvent
+- Dans le Rocher qui geint et dans l’Herbe qui pleure.
+
+- Des Souffles qui demeurent
+- Dans l’Ombre qui s’éclaire et s’épaissit,
+- Dans l’Arbre qui frémit, dans le Bois qui gémit
+- Et dans l’Eau qui coule et dans l’Eau qui dort,
+- Des Souffles plus forts qui ont pris
+- Le Souffle des Morts qui ne sont pas morts,
+- Des Morts qui ne sont pas partis,
+- Des Morts qui ne sont plus sous la Terre.
+
+- Écoute plus souvent
+- Les Choses que les Êtres
+- La Voix du Feu s’entend,
+- Entends la Voix de l’Eau.
+- Écoute dans le Vent
+- Le Buisson en sanglots,
+- C’est le Souffle des Ancêtres.
+
+- *BIRAGO DIOP, Souffles*
+
+---
+
 - In this food I see clearly the presence of the entire universe supporting my existence
 - Vietnamese Buddhist Monk, Thich Nhat Hanh
 
