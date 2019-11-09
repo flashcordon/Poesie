@@ -1,3 +1,7 @@
+- « Quiconque, en effet, n'envisage pas le commencement de son action ne sait pas en prévoir la fin. Ainsi, à la mémoire qui se retourne vers le passé, se lie nécessairement l’attention qui se porte sur l’avenir. Qui oublie ce qu’il commence saura t-il comment il peut finir ? » - Saint Augustin, la Cité de Dieu
+
+---
+
 - “La voie la plus courte pour l'avenir est toujours celle qui passe par l'approfondissement du passé.” - Aimé Césaire
 
 ---
