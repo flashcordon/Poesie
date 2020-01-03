@@ -1,3 +1,12 @@
+
+- We are survivors of immeasurable events
+- Flung upon some reach of land
+- Small, wet miracles without instructions,
+- Only the imperative of change
+- Rebecca Elson
+
+---
+
 - « Quiconque, en effet, n'envisage pas le commencement de son action ne sait pas en prévoir la fin. Ainsi, à la mémoire qui se retourne vers le passé, se lie nécessairement l’attention qui se porte sur l’avenir. Qui oublie ce qu’il commence saura t-il comment il peut finir ? » - Saint Augustin, la Cité de Dieu
 
 ---
