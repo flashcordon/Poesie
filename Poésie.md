@@ -1,3 +1,10 @@
+- We shall not cease from exploration and the end of all our exploring will be to arrive where we started and know the place for the first time - T. S. Eliot
+
+---
+
+- L'univers n'est pas obligé d'être beau, et pourtant il est beau. ... beau, et pourtant il est beau." - François Cheng, Cinq méditations sur la beauté
+
+---
 
 - We are survivors of immeasurable events
 - Flung upon some reach of land
