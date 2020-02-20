@@ -1,3 +1,8 @@
+
+- “We reach forth and strain every nerve, but we seize only a bit of the curtain that hides the infinite from us.” - Maria Mitchell
+
+---
+
 - We shall not cease from exploration and the end of all our exploring will be to arrive where we started and know the place for the first time - T. S. Eliot
 
 ---
