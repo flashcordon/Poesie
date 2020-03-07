@@ -1,3 +1,14 @@
+- Très oiseaux les oiseaux sont très sûrs d’être oiseaux
+- L’écureuil sait très bien son métier d’écureuil
+- Les chevaux dans leur peau de cheval sont chevaux
+- Le lézard sait par cœur l’art de vivre en lézard
+- La fourrure du chat tient le chat tout entier
+- Le renard est renard tout le long de l’année
+- Le poisson est dans l’eau comme un poisson dans l’eau
+- Mais moi je m’évapore et me perds et me trouve et ne suis jamais sûr d’être ce que je suis.
+- Bestiaire des animaux a l’aise dans leur peau, par Claude Roy
+
+---
 
 - “We reach forth and strain every nerve, but we seize only a bit of the curtain that hides the infinite from us.” - Maria Mitchell
 
