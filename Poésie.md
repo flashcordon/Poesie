@@ -1,3 +1,32 @@
+- Nous vivons dans l'oubli de nos métamorphoses
+- Le jour est paresseux mais la nuit est active
+- Un bol d'air à midi la nuit le filtre et l'use
+- La nuit ne laisse pas de poussière sur nous
+
+- Mais cet écho qui roule tout le long du jour
+- Cet écho hors du temps d'angoisse ou de caresses
+- Cet enchaînement brut des mondes insipides
+- Et des mondes sensibles son soleil est double
+
+- Sommes-nous près ou loin de notre conscience
+- Où sont nos bornes nos racines notre but
+- Le long plaisir pourtant de nos métamorphoses
+- Squelettes s'animant dans les murs pourrissants
+
+- Les rendez-vous donnés aux formes insensées
+- À la chair ingénieuse aux aveugles voyants
+- Les rendez-vous donnés par la face au profil
+- Par la souffrance à la santé par la lumière
+
+- À la forêt par la montagne à la vallée
+- Par la mine à la fleur par la perle au soleil
+- Nous sommes corps à corps nous sommes terre à terre
+- Nous naissons de partout nous sommes sans limites
+- in Le dur désir de durer, 1946,
+- Paul Eluard, Œuvres complètes t.II © Gallimard, La Pléiade, p.83 
+
+---
+
 - Très oiseaux les oiseaux sont très sûrs d’être oiseaux
 - L’écureuil sait très bien son métier d’écureuil
 - Les chevaux dans leur peau de cheval sont chevaux
