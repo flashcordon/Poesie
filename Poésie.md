@@ -1,3 +1,9 @@
+- Il y a des étoiles qui se sont éteintes sous nos yeux, d’autres vacillent comme la flamme mourante d’une bougie. Les cieux, qu’on croyait incorruptibles, ne connaissent d’éternel que l’éternel écoulement des choses.
+- Anatole France, [le jardin d'Epicure](https://fr.wikisource.org/wiki/Le_Jardin_d%E2%80%99%C3%89picure) (1894)
+
+
+---
+
 - Nous vivons dans l'oubli de nos métamorphoses
 - Le jour est paresseux mais la nuit est active
 - Un bol d'air à midi la nuit le filtre et l'use
