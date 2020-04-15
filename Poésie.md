@@ -1,3 +1,9 @@
+- « N'est pas mort à jamais qui dort dans l'éternel,
+- En d'étranges éons, la mort même est mortelle. »
+- H. P. Lovecraft, La Cité sans nom
+
+---
+
 - Il y a des étoiles qui se sont éteintes sous nos yeux, d’autres vacillent comme la flamme mourante d’une bougie. Les cieux, qu’on croyait incorruptibles, ne connaissent d’éternel que l’éternel écoulement des choses.
 - Anatole France, [le jardin d'Epicure](https://fr.wikisource.org/wiki/Le_Jardin_d%E2%80%99%C3%89picure) (1894)
 
