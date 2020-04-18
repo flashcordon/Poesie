@@ -1,3 +1,8 @@
+- I know that I am mortal by nature and ephemeral, but when I trace at my pleasure the windings to and fro of the heavenly bodies, I no longer touch earth with my feet. I stand in the presence of Zeus himself and take my fill of ambrosia.
+- Ptolémée
+
+---
+
 - « N'est pas mort à jamais qui dort dans l'éternel,
 - En d'étranges éons, la mort même est mortelle. »
 - H. P. Lovecraft, La Cité sans nom
