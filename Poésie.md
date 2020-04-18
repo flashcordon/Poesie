@@ -1,3 +1,16 @@
+- Moi qui passes et qui meurs,
+- je vous contemple étoiles !
+
+- La terre n'étreint plus l'enfant qu'elle a porté.
+- Debout, tout près des dieux, dans la nuit aux cent voiles,
+
+- Je m'associe, infime, à cette immensité ;
+- Je goûte en vous voyant, ma part d'éternité
+
+- Ptolémée, Almageste
+
+---
+
 - I know that I am mortal by nature and ephemeral, but when I trace at my pleasure the windings to and fro of the heavenly bodies, I no longer touch earth with my feet. I stand in the presence of Zeus himself and take my fill of ambrosia.
 - Ptolémée
 
