@@ -1,3 +1,7 @@
+- "Je voudrais que vous vous émerveillez non seulement de ce que vous lisez, mais du miracle que ce soit lisible." - Vladimir Nabokov
+
+---
+
 - Moi qui passes et qui meurs,
 - je vous contemple étoiles !
 
