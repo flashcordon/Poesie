@@ -1,3 +1,7 @@
+- "Art is everything you don't have to do" - Brian Eno
+
+---
+
 - J'aurais souhaité, après mon retour, que les gens me demandent comment c'était là haut, comment je m'étais associé à cette noire brillance du monde et quelle impression cela m'avait fait d'être comme une étoile tournant tout autour de la Terre
 - Reinhard Furrer - RFA
 
