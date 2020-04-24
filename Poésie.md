@@ -1,3 +1,8 @@
+- J'aurais souhaité, après mon retour, que les gens me demandent comment c'était là haut, comment je m'étais associé à cette noire brillance du monde et quelle impression cela m'avait fait d'être comme une étoile tournant tout autour de la Terre
+- Reinhard Furrer - RFA
+
+---
+
 - "Je voudrais que vous vous émerveillez non seulement de ce que vous lisez, mais du miracle que ce soit lisible." - Vladimir Nabokov
 
 ---
@@ -192,7 +197,7 @@
 
 ---
 
-- “The first day or so we all pointed to our countries. The third or fourth day we were pointing to our continents. By the fifth day, we were aware of only one Earth,” 
+- Les premiers jours, nous montrions nos propres pays. Au troisième et au quatrième jour, notre continent. Dès le cinquième jour, nous ne fîmes plus attention qu'à la seule Terre.
 - *Prince Sultan bin Salman Al-Saud, premier astronaute Saoudien (Mission STS-51G, 17 Juin 1985, dans la navette Discovery)*
 
 ---
