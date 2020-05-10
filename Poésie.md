@@ -1,3 +1,7 @@
+- “Time is but the stream I go a-fishing in. I drink at it; but while I drink I see the sandy bottom and detect how shallow it is. Its thin current slides away, but eternity remains. I would drink deeper; fish in the sky, whose bottom is pebbly with stars.” - Henry David Thoreau, Walden
+
+---
+
 - "Art is everything you don't have to do" - Brian Eno
 
 ---
