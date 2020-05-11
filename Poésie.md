@@ -1,3 +1,7 @@
+- “There is nothing new under the sun, but there are new suns." - Octavia Butler
+
+---
+
 - I must create a system, or be enslaved by another man's. I will not reason and compare: my business is to create.
 - William Blake
 
