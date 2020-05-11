@@ -1,3 +1,8 @@
+- I must create a system, or be enslaved by another man's. I will not reason and compare: my business is to create.
+- William Blake
+
+---
+
 - “Time is but the stream I go a-fishing in. I drink at it; but while I drink I see the sandy bottom and detect how shallow it is. Its thin current slides away, but eternity remains. I would drink deeper; fish in the sky, whose bottom is pebbly with stars.” - Henry David Thoreau, Walden
 
 ---
