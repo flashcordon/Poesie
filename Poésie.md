@@ -1,3 +1,8 @@
+- “Luck, “which is very different from art, sometimes produces things which are like it" 
+- Ion of Chios
+
+---
+
 - What a piece of work is man, How noble in reason, how infinite in faculty, In form and moving how express and admirable, In action how like an Angel, In apprehension how like a god, The beauty of the world, The paragon of animals. And yet to me, what is this quintessence of dust? Man delights not me; no, nor Woman neither; though by your smiling you seem to say so.
 - William Shakespeare
 
