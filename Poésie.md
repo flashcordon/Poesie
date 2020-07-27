@@ -1,3 +1,8 @@
+"If the doors of perception were cleansed every thing would appear to man as it is, Infinite. For man has closed himself up, till he sees all things thro' narrow chinks of his cavern." - William Blake, The Marriage of Heaven and Hell 
+- « Si les portes de la perception étaient nettoyées, chaque chose apparaîtrait à l'homme telle qu'elle est, infinie »
+
+---
+
 - “Luck, “which is very different from art, sometimes produces things which are like it" 
 - Ion of Chios
 
