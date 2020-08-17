@@ -1,4 +1,18 @@
-"If the doors of perception were cleansed every thing would appear to man as it is, Infinite. For man has closed himself up, till he sees all things thro' narrow chinks of his cavern." - William Blake, The Marriage of Heaven and Hell 
+- Les especes qui survivent ne sont pas les plus fortes ni les plus intelligentes mais celles qui s'adaptent le mieux au changement 
+- Charles darwin
+
+---
+
+- Imaginons que la distance séparant le nez du roi de l'extrémité de sa mainquand il étend le bras représente l'histoire de la terre. Un simple coup de lime sur l'ongle de son médius suffirait à effacer toutr l'histoire de l'humanité 
+- Charles Lyell, 1873
+
+---
+
+- Truth is the first casualty of war - James Lovelock
+
+---
+
+- "If the doors of perception were cleansed every thing would appear to man as it is, Infinite. For man has closed himself up, till he sees all things thro' narrow chinks of his cavern." - William Blake, The Marriage of Heaven and Hell 
 - « Si les portes de la perception étaient nettoyées, chaque chose apparaîtrait à l'homme telle qu'elle est, infinie »
 
 ---
