@@ -1,4 +1,30 @@
-- Voie lactée ô soeur lumineuse... (extraits)
+- ***Voici la mort du ciel...***
+
+- Voici la mort du ciel en l'effort douloureux
+- Qui lui noircit la bouche et fait saigner les yeux.
+- Le ciel gémit d'ahan, tous ses nerfs se retirent,
+- Ses poumons près à près sans relâche respirent.
+- Le soleil vêt de noir le bel or de ses feux,
+- Le bel oeil de ce monde est privé de ses yeux ;
+- L'âme de tant de fleurs n'est plus épanouie,
+- Il n'y a plus de vie au principe de vie :
+- Et, comme un corps humain est tout mort terrassé
+- Dès que du moindre coup au coeur il est blessé,
+- Ainsi faut que le monde et meure et se confonde
+- Dès la moindre blessure au soleil, coeur du monde.
+- La lune perd l'argent de son teint clair et blanc,
+- La lune tourne en haut son visage de sang ;
+- Toute étoile se meurt : les prophètes fidèles
+- Du destin vont souffrir éclipses éternelles.
+- Tout se cache de peur : le feu s'enfuit dans l'air,
+- L'air en l'eau, l'eau en terre ; au funèbre mêler
+- Tout beau perd sa couleur.
+
+- Agrippa d'Aubigné
+
+---
+
+- ***Voie lactée ô soeur lumineuse... (extraits)***
 
 - Voie lactée ô soeur lumineuse
 - Des blancs ruisseaux de Chanaan
