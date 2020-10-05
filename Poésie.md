@@ -1,3 +1,25 @@
+- ***Les Étoiles***
+
+- Les cieux resplendissants d'Étoiles
+- Aux radieux frissonnements,
+- Ressemblent à des flots dormants
+- Que sillonnent de blanches voiles.
+
+- Quand l'azur déchire ses voiles,
+- Nous voyons les bleus firmaments,
+- Les cieux resplendissants d'Étoiles
+- Aux radieux frissonnements.
+
+- Quel peintre mettra sur ses toiles,
+- O Dieu! ces clairs fourmillements,
+- Ces fournaises de diamants
+- Qu'à mes yeux ravis tu dévoiles,
+- Les cieux resplendissants d'Étoiles ?
+
+- Théodore de Banville, tiré de Rondels (1875)
+
+---
+
 - ***La Voie lactée (extraits)***
 
 - Déesse, dans les cieux éblouissants, la Voie
