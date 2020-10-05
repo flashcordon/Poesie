@@ -1,3 +1,58 @@
+- ***Complainte du temps et de l'espace***
+
+- Je tends mes poignets universels dont aucun
+- n'est le droit ou le gauche, et l'espace, dans un
+- va-et-vient giratoire, y détrame les toiles
+- d'azur pleines de cocons à foetus d'étoiles.
+- Et nous nous blasons tant, je ne sais où, les deux
+- indissolubles nuits aux orgues vaniteux
+- de nos pores à soleils, où toute cellule
+- chante : moi ! Moi ! Puis s'éparpille, ridicule !
+- Elle est l'infini sans fin, je deviens le temps
+- infaillible. C'est pourquoi nous nous perdons tant.
+- Où sommes-nous ? Pourquoi ? Pour que Dieu s'accomplisse ?
+- Mais l'éternité n' y a pas suffi ! Calice
+- inconscient, où tout coeur crevé se résout,
+- extrais-nous donc alors de ce néant trop tout !
+- Que tu fisses de nous seulement une flamme,
+- un vrai sanglot mortel, la moindre goutte d'âme !
+- Mais nous bâillons de toute la force de nos
+- touts, sûrs de la surdité des humains échos.
+- Que ne suis-je indivisible ! Et toi, douce espace,
+- où sont les steppes de tes seins, que j'y rêvasse ?
+- Quand t' ai-je fécondée à jamais ? Oh ! Ce dut
+- être un spasme intéressant ! Mais quel fut mon but ?
+- Je t'ai, tu m'as. Mais où ? Partout, toujours. Extase
+- sur laquelle, quand on est le temps, on se blase.
+- Or, voilà des spleens infinis que je suis en
+- voyage vers ta bouche, et pas plus à présent
+- que toujours, je ne sens la fleur triomphatrice
+- qui flotte, m'as-tu dit, au seuil de ta matrice.
+- Abstraites amours ! Quel infini mitoyen
+- tourne entre nos deux touts ? Sommes-nous deux ? Ou bien
+- (tais-toi si tu ne peux me prouver à outrance,
+- illico, le fondement de la connaissance,
+- et, par ce chant : pensée, objet, identité !
+- Souffler le doute, songe d'un siècle d'été)
+- suis-je à jamais un solitaire Hermaphrodite,
+- comme le ver solitaire, ô ma sulamite ?
+- Ma complainte n' a pas eu de commencement,
+- que je sache, et n' aura nulle fin ; autrement,
+- je serais l'anachronisme absolu. Pullule
+- donc, azur possédé du mètre et du pendule !
+- ô source du possible, alimente à jamais
+- des pollens des soleils d'exil, et de l'engrais
+- des chaotiques hécatombes, l'automate
+- universel où pas une loi ne se hâte.
+- Nuls à tout, sauf aux rares mystiques éclairs
+- des élus, nous restons les deux miroirs d'éther
+- réfléchissant, jusqu'à la mort de ces mystères,
+- leurs nuits que l' amour jonche de fleurs éphémères.
+
+- Jules Laforgues, 1885, tiré de Les complaintes (1922), pages 177-179
+
+---
+
 - ***Les étoiles éteintes (extraits)***
 
 - (...) A l'heure où sur la mer le soir silencieux
