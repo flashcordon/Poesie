@@ -1,3 +1,17 @@
+- "En quelque recoin écarté de l'Univers répandu,
+- Dans le flamboiement d'innombrables systèmes solaires,
+- Il y eut une fois un astre sur lequel des animaux intelligents
+- inventèrent la connaissance.
+- Ce fut la minute la plus arrogante
+- Et la plus mensongère de "l'histoire universelle" :
+- Mais ce ne fut qu'une minute.
+- A peine quelques soupirs de la nature,
+- Et l'astre se figea,
+- Et les animaux intelligents durent mourir."
+- Jean-Michel Truong - Le successeur de Pierre (1999)
+
+---
+
 - ***Les étoiles***
 
 - Il est pour la pensée une heure... une heure sainte,
