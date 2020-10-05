@@ -1,3 +1,24 @@
+- ***La Voie lactée (extraits)***
+
+- Déesse, dans les cieux éblouissants, la Voie
+- Lactée est un chemin de triomphe et de joie,
+- Et ce flot de clarté qui dans le firmament
+- Jette parmi l'azur son blanc embrasement
+- Semble, dans sa splendeur en feu qui s'irradie,
+- Produit par un foyer unique d'incendie.
+- Mais quand notre regard dans l'éther empli d'yeux
+- Monte vers l'Océan céleste que les Dieux
+- Font rouler des Gémeaux de flamme au Sagittaire,
+- Il y voit flamboyer des astres dont la terre
+- Admire en pâlissant la sereine splendeur,
+- Et dans le vaste flot sacré dont la candeur
+- Éclate et de la nuit blanchit les sombres voiles,
+- Il voit s'épanouir des millions d'étoiles. (...)
+
+- Théodore de Banville, janvier 1842, tiré de Rondels (1875)
+
+---
+
 - ***Voici la mort du ciel...***
 
 - Voici la mort du ciel en l'effort douloureux
