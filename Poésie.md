@@ -1,3 +1,7 @@
+- [L'astronomie et la poésie](http://pages.infinit.net/noxoculi/poesie.html) - Nox Oculis
+
+---
+
 - Les especes qui survivent ne sont pas les plus fortes ni les plus intelligentes mais celles qui s'adaptent le mieux au changement 
 - Charles darwin
 
