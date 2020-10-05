@@ -1,3 +1,42 @@
+- ***Hymne au soleil***
+
+- Roi du monde et du jour, guerrier aux cheveux d'or,
+- Quelle main, te couvrant d'une armure enflammée,
+- Abandonna l'espace à ton rapide essor,
+- Et traça dans l'azur ta route accoutumée ?
+- Nul astre à tes côtés ne lève un front rival ;
+- Les filles de la nuit à ton éclat pâlissent ;
+- La lune devant toi fuit d'un pas inégal,
+- Et ses rayons douteux dans les flots s'engloutissent.
+- Sous les coups réunis de l'âge et des autans
+- Tombe du haut sapin la tête échevelée ;
+- Le mont même, le mont, assailli par le temps,
+- Du poids de ses débris écrase la vallée ;
+- Mais les siècles jaloux épargnent ta beauté :
+- Un printemps éternel embellit ta jeunesse,
+- Tu t'empares des cieux en monarque indompté,
+- Et les voeux de l'amour t'accompagnent sans cesse.
+- Quand la tempête éclate et rugit dans les airs,
+- Quand les vents font rouler, au milieu des éclairs,
+- Le char retentissant qui porte le tonnerre,
+- Tu parais, tu souris, et consoles la terre.
+- Hélas ! depuis longtemps tes rayons glorieux
+- Ne viennent plus frapper ma débile paupière !
+- Je ne te verrai plus, soit que, dans ta carrière,
+- Tu verses sur la plaine un océan de feux,
+- Soit que, vers l'occident, le cortège des ombres
+- Accompagne tes pas, ou que les vagues sombres
+- T'enferment dans le sein d'une humide prison !
+- Mais, peut-être, ô soleil, tu n'as qu'une saison ;
+- Peut-être, succombant sous le fardeau des âges,
+- Un jour tu subiras notre commun destin ;
+- Tu seras insensible à la voix du matin,
+- Et tu t'endormiras au milieu des nuages.
+
+- Pierre Baour-Lormian, tiré de Poésies d'Ossian (1827)
+
+---
+
 - ***Les Étoiles***
 
 - Les cieux resplendissants d'Étoiles
