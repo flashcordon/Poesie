@@ -1,3 +1,77 @@
+- ***L'Aurore boréale***
+
+- La nuit d'hiver étend son aile diaphane
+- Sur l'immobilité morne de la savane
+- Qui regarde monter, dans le recueillement,
+- La lune, à l'horizon, comme un saint-sacrement.
+- L'azur du ciel est vif, et chaque étoile blonde
+- Brille à travers les fûts de la forêt profonde.
+- La rafale se tait, et les sapins glacés,
+- Comme des spectres blancs, penchent leurs fronts lassés
+- Sous le poids de la neige étincelant dans l'ombre.
+- La savane s'endort dans sa majesté sombre,
+- Pleine du saint émoi qui vient du firmament.
+- Dans l'espace nul bruit ne trouble, un seul moment,
+- Le transparent sommeil des gigantesques arbres
+- Dont les troncs sous le givre ont la pâleur des marbres.
+- Seul, le craquement sourd d'un bouleau qui se fend
+- Sous l'invincible effort du grand froid triomphant
+- Rompt d'instant en instant le solennel silence
+- Du désert qui poursuit sa rêverie immense.
+
+- Tout à coup, vers le nord, du vaste horizon pur
+- Une rose lueur émerge dans l'azur,
+- Et, fluide clavier dont les étranges touches
+- Battent de l'aile ainsi que des oiseaux farouches,
+- Eparpillant partout des diamants dans l'air,
+- Elle envahit le vague océan de l'éther.
+- Aussitôt ce clavier, zébré d'or et d'agate,
+- Se change en un rideau dont la blancheur éclate,
+- Dont les replis moelleux, aussi prompts que l'éclair,
+- Ondulent follement sur le firmament clair.
+- Quel est ce voile étrange, ou plutôt ce prodige ?
+
+- C'est le panorama que l'esprit du vertige
+- Déroule à l'infini de la mer et des cieux.
+- Sous le souffle effréné d'un vent mystérieux,
+- Dans un écroulement d'ombres et de lumières,
+- Le voile se déchire, et de larges rivières
+- De perles et d'onyx roulent dans le ciel bleu,
+- Et leurs flots, tout hachés de volutes de feu,
+- S'écrasent et, trouant les archipels d'opale,
+- Déferlent par-dessus une montagne pâle
+- De nuages pareils à des vaisseaux ancrés
+- Dans les immensités des golfes éthérés,
+- Et puis, rejaillissant sur des vapeurs compactes,
+- Inondent l'horizon de roses cataractes.
+- Le voile en un clin d'oeil se reforme plus beau,
+- Lové comme un serpent, flottant comme un drapeau.
+- Plus rapide cent fois qu'un jet pyrotechnique,
+- Il fait en pétillant un sabbat fantastique,
+- Et met en mouvement des milliers de soleils
+- A travers des brouillards transparents et vermeils
+- Comme cristallisés dans la plaine éthérée.
+- Quelquefois on dirait une écharpe nacrée
+- Qu'un groupe de houris secouerait en volant
+- Dans l'incommensurable espace étincelant ;
+- Tantôt on le prendrait pour le réseau de toiles
+- Que Prométhée étend pour saisir les étoiles,
+- Ou pour le tablier sans bornes dans lequel
+- Les anges vanneraient des roses sur le ciel.
+
+- Et la forêt regarde, enivrée, éblouie.
+- Se dérouler au loin cette scène inouïe ;
+- Et l'orignal, le mufle en avant, tout tremblant,
+- Les quatre pieds cloués sur un mamelon blanc,
+- L'oeil grand ouvert, au bord de la savane claire,
+- Fixe depuis longtemps l'auréole polaire
+- Poudroyant de ses feux le céleste plafond,
+- Et son extase fauve en deux larmes se fond.
+
+- William Chapman, tiré de Les Aspirations (1904)
+
+---
+
 - ***Complainte du temps et de l'espace***
 
 - Je tends mes poignets universels dont aucun
