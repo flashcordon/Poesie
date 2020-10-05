@@ -1,3 +1,25 @@
+- ***L'astre rouge***
+
+- Sur les continents morts, les houles léthargiques
+- où le dernier frisson d'un monde a palpité
+- s'enflent dans le silence et dans l'immensité ;
+- et le rouge Sahil, du fond des nuits tragiques,
+- seul flambe, et darde aux flots son oeil ensanglanté.
+- Par l'espace sans fin des solitudes nues,
+- ce gouffre inerte, sourd, vide, au néant pareil,
+- Sahil, témoin suprême, et lugubre soleil
+- qui fait la mer plus morne et plus noires les nues,
+- couve d'un oeil sanglant l'universel sommeil.
+- Génie, amour, douleur, désespoir, haine, envie,
+- ce qu'on rêve, ce qu'on adore et ce qui ment,
+- terre et ciel, rien n'est plus de l'antique moment.
+- Sur le songe oublié de l'homme et de la vie
+- l'oeil rouge de Sahil saigne éternellement.
+
+- Leconte de Lisle, 1884, tiré de Poèmes tragiques (1886), pages 24-25
+
+---
+
 - ***Au chemin des étoiles (extraits)***
 
 - Je m'en vais dans le soir comme un fiévreux qui rêve,
