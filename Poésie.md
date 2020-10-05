@@ -1,3 +1,29 @@
+- ***Au chemin des étoiles (extraits)***
+
+- Je m'en vais dans le soir comme un fiévreux qui rêve,
+- Et qui monte très haut, flottant dans un linceul,
+- Et qui voudrait qu'enfin le vertige s'achève,
+- Mais qui monte toujours, étonné et tout seul.
+
+- Dans l'espace, mes sens érigent leurs antennes,
+- Pour distinguer le bruit qui naît du bruit qui meure ;
+- Je cherche dans le ciel quelle étoile est la mienne,
+- Je cherche des oublis qui sont toujours ailleurs.
+
+- Quand le jour insolent raille mon stratagème,
+- Je montre à son soleil les misères que j'ai ;
+- Et pour parer mon deuil, je porte en diadème,
+- La clarté que j'ai prise aux astres étrangers.
+
+- Les astres qui brillaient pour d'autres, je les porte,
+- Et je vais, attentive, à travers les humains,
+- Songeant que mon étoile, un autre me l'apporte,
+- Et nous échangeons nos astres en chemin.
+
+- Jovette-Alice Bernier, Les masques déchirés (1932)
+
+---
+
 - ***Hymne au soleil***
 
 - Roi du monde et du jour, guerrier aux cheveux d'or,
