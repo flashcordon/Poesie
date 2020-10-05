@@ -1,3 +1,19 @@
+- ***Les étoiles éteintes (extraits)***
+
+- (...) A l'heure où sur la mer le soir silencieux
+- Efface les lointaines voiles,
+- Où, lente, se déploie, en marche dans les cieux,
+- L'armée immense des étoiles,
+
+- Ne songes-tu jamais que ce clair firmament,
+- Comme la mer a ses désastres ?
+- Que, vaisseaux envahis par l'ombre, à tout moment
+- Naufragent et meurent des astres ? (...)
+
+- Auguste Dorchain
+
+---
+
 - ***L'astre rouge***
 
 - Sur les continents morts, les houles léthargiques
