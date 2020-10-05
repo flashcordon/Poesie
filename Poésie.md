@@ -1,3 +1,34 @@
+- Voie lactée ô soeur lumineuse... (extraits)
+
+- Voie lactée ô soeur lumineuse
+- Des blancs ruisseaux de Chanaan
+- Et des corps blancs des amoureuses
+- Nageurs morts suivrons nous d'ahan
+- Ton cours vers d'autres nébuleuses
+- (...)
+
+- Ses regards laissaient une traîne
+- D'étoiles dans les soirs tremblants
+- Dans ses yeux nageaient les sirènes
+- Et nos baisers mordus sanglants
+ - Faisaient pleurer nos fées marraines
+
+- Mais en vérité je l'attends
+- Avec mon coeur avec mon âme
+- Et sur le pont des Reviens-t'en
+- Si jamais reviens cette femme
+- Je lui dirai Je suis content
+
+- Mon coeur et ma tête se vident
+- Tout le ciel s'écoule par eux
+- O mes tonneaux des Danaïdes
+- Comment faire pour être heureux
+- Comme un petit enfant candide (...)
+
+- Guillaume Apollinaire, Alcools
+
+---
+
 - [L'astronomie et la poésie](http://pages.infinit.net/noxoculi/poesie.html) - Nox Oculis
 
 ---
