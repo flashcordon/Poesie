@@ -1,3 +1,9 @@
+- ‘To accept one’s past – one’s history – is not the same thing as drowning in it; it is learning how to use it. 
+- An invented past can never be used; it cracks and crumbles under the pressures of life, like clay in a season of drought.’
+- James Baldwin
+
+---
+
 - "En quelque recoin écarté de l'Univers répandu,
 - Dans le flamboiement d'innombrables systèmes solaires,
 - Il y eut une fois un astre sur lequel des animaux intelligents
