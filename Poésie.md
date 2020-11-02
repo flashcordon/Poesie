@@ -1,3 +1,9 @@
+- “You think your pain and your heartbreak are unprecedented in the history of the world, but then you read. It was books that taught me that the things that tormented me most were the very things that connected me with all the people who were alive, who had ever been alive.”
+
+- James Baldwin
+
+---
+
 - ‘To accept one’s past – one’s history – is not the same thing as drowning in it; it is learning how to use it. 
 - An invented past can never be used; it cracks and crumbles under the pressures of life, like clay in a season of drought.’
 - James Baldwin
