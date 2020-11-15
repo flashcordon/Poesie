@@ -1,3 +1,6 @@
+- "Être écologiste, c’est accepter d’être à la fois pressé et patient, de vivre dans cette sorte d’élasticité du temps qui impose un va-et-vient constant entre le temps de la nature et celui de l’agenda politique, entre le temps du présent et celui d’un futur dont on ne sait finalement pas grand chose. L’écologiste est urgence et lenteur combinées."
+- Vanessa Jérome
+
 - “You think your pain and your heartbreak are unprecedented in the history of the world, but then you read. It was books that taught me that the things that tormented me most were the very things that connected me with all the people who were alive, who had ever been alive.”
 
 - James Baldwin
