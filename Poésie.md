@@ -1,5 +1,66 @@
+- Theory of Everything (by Sara Louisa Bahet, for Sébastien Carassou)
+
+Late bus, cold bones, hair slick in September rain.
+Water courses down the avenue.
+And I see:
+
+An idea borne, as though
+It were outside me.
+Where wind meets water.
+
+So transparent,
+I looked blankly through it
+My whole life.
+
+The wind across oily puddles
+Summons ripples
+I cannot prophecy.
+
+Yet supposing some equations do describe these—
+Equations different from those that trace my motion
+When wind wants to topple me in water,
+
+I am no longer bothered
+By the wind or wet or my ignorance.
+There is solely joy, for I see:
+
+Equations differ between the water and I,
+But the same wind moves us
+Upon the avenue.
+
+And so I dream:
+
+There is a cosmic gale,
+An ever greater wind—
+A wind to move the wind.
+They call it theory of everything.
+
+Isn't it easier to find
+What you can at first imagine?
+
+So I imagine a wind
+That blows our universe,
+Worth loosing oneself in the head for,
+Just to understand how this is this.
+
+I wanted only to run and tell you then
+Of the shadow of eternity
+Glimpsed in a puddle.
+
+But the meaning of wonder
+Goes deeper than words,
+And poems take time.
+
+The bus arrived.
+So I bottled wind in words for you to find,
+Blowing puddles through your mind.
+
+---
+
 - "Être écologiste, c’est accepter d’être à la fois pressé et patient, de vivre dans cette sorte d’élasticité du temps qui impose un va-et-vient constant entre le temps de la nature et celui de l’agenda politique, entre le temps du présent et celui d’un futur dont on ne sait finalement pas grand chose. L’écologiste est urgence et lenteur combinées."
 - Vanessa Jérome
+
+---
 
 - “You think your pain and your heartbreak are unprecedented in the history of the world, but then you read. It was books that taught me that the things that tormented me most were the very things that connected me with all the people who were alive, who had ever been alive.”
 
