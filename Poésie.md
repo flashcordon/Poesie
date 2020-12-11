@@ -1,3 +1,8 @@
+- Le commencement de toutes les sciences, c’est l’étonnement de ce que les choses sont ce qu’elles sont.
+- Aristote
+
+---
+
 - Theory of Everything (by Sara Louisa Bahet, for Sébastien Carassou)
 
 Late bus, cold bones, hair slick in September rain.
