@@ -1,3 +1,15 @@
+- C’est sur ce globe mobile que nous sommes, à peu
+près dans la même situation matérielle que des grains de
+poussière adhérents à la surface d’un énorme boulet de
+canon lancé dans l’immensité. Divin mécanisme sidéral,
+la force qui transporte notre planète s’exerce sans efforts,
+sans frottements et sans chocs, au sein du silence absolu
+des cieux éternels.
+- Camille Flammarion.
+- L’Astronomie populaire. 1880.
+
+---
+
 - Le commencement de toutes les sciences, c’est l’étonnement de ce que les choses sont ce qu’elles sont.
 - Aristote
 
