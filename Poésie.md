@@ -1,3 +1,8 @@
+- Kia whakatōmuri te haere whakamua: ‘I walk backwards into the future with my eyes fixed on my past’
+- Proverbe Maori
+
+---
+
 - C’est sur ce globe mobile que nous sommes, à peu
 près dans la même situation matérielle que des grains de
 poussière adhérents à la surface d’un énorme boulet de
