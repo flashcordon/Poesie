@@ -1,3 +1,8 @@
+- N'espère rien de l'homme s'il travaille pour sa propre vie et non pour son éternité
+- Antoine de Saint-Exupéry
+
+---
+
 - Kia whakatōmuri te haere whakamua: ‘I walk backwards into the future with my eyes fixed on my past’
 - Proverbe Maori
 
