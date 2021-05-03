@@ -1,3 +1,16 @@
+- Tout reposait dans Ur et dans Jérimadeth ;
+- Les astres émaillaient le ciel profond et sombre ;
+- Le croissant fin et clair parmi ces fleurs de l’ombre
+- Brillait à l’occident, et Ruth se demandait,
+
+- Immobile, ouvrant l’œil à moitié sous ses voiles,
+- Quel dieu, quel moissonneur de l’éternel été,
+- Avait, en s’en allant, négligemment jeté
+- Cette faucille d’or dans le champ des étoiles. 
+- Victor Hugo, La Légende des siècles
+
+---
+
 - N'espère rien de l'homme s'il travaille pour sa propre vie et non pour son éternité
 - Antoine de Saint-Exupéry
 
