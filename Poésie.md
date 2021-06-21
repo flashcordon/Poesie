@@ -1,3 +1,7 @@
+Jeannine Salesse : « quelles paroles faut-il semer, pour que les jardins du monde redeviennent fertiles ? »
+
+---
+
 - Au-dessus des étangs, au-dessus des vallées,
 - Des montagnes, des bois, des nuages, des mers,
 - Par delà le soleil, par delà les ésthers,
