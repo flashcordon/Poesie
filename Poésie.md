@@ -1,3 +1,21 @@
+- Nul homme n'est une île,
+- entière en elle-même ;
+- tout homme est un morceau du continent,
+- une partie de l'ensemble.
+- Si une motte de terre était emportée par la mer,
+- l'Europe en serait diminuée,
+- aussi bien que si c’était un promontoire,
+- aussi bien que si c’était le manoir de tes amis
+- ou le tien propre :
+- la mort de tout homme me diminue,
+- parce que je fais partie du genre humain,
+- et en conséquence, n'envoie jamais demander pour qui sonne le glas ;
+- il sonne pour toi.
+
+- John Donne - Méditation XVII (1624)
+
+---
+
 Jeannine Salesse : « quelles paroles faut-il semer, pour que les jardins du monde redeviennent fertiles ? »
 
 ---
