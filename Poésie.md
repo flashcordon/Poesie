@@ -1,3 +1,13 @@
+- Toutes choses 
+- Proches ou lointaines, 
+- Secrètement 
+- Sont reliées les unes aux autres, 
+- Et vous ne pouvez toucher une fleur 
+- Sans déranger une étoile.
+- Francis Thompson
+
+---
+
 - Nul homme n'est une île,
 - entière en elle-même ;
 - tout homme est un morceau du continent,
