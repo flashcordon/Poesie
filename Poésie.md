@@ -1,3 +1,6 @@
+- Un bouclier efficace contre la vulgarité de la jalousie nous est fourni par le fait que l’homme et la femme ne forment pas un corps ni un esprit uniques. Ils sont deux êtres humains, de tempéraments, de sentiments et d’émotions différents. Chacun est un petit cosmos par lui-même, incarné en ses pensées et idées propres. Il est merveilleux et politique que ces deux mondes se rencontrent dans la liberté et l’égalité. Cela en vaut la peine même si cela ne dure qu’une courte période de temps.
+- Emma Goldman, Des causes et d’un remède éventuel à la jalousie
+
 - Toutes choses 
 - Proches ou lointaines, 
 - Secrètement 
